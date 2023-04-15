@@ -1,6 +1,6 @@
 # Hi there 👋
 
-I'm MOn ₿. Jofn, a free young man with a lot of free time 🤫
+I'm MOn ₿. Jofn, a free young man, anarcho-capitalist, entrepreneur with a lot of free time 🤫
 
 Fun Facts
 
