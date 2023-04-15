@@ -10,4 +10,4 @@ Fun Facts
 🏡 2014 - First own home\
 🚗 2015 - First own supercar\
 🔥 2018 - FI/RE\
-🚨 To this days - I have never sold my Bitcoin\
+🚨 To this days - I have never sold my Bitcoin
