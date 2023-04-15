@@ -1,16 +1,13 @@
-### Hi there 👋
+# Hi there 👋
 
-<!--
-**monjofn/monjofn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm MOn ₿. Jofn, a free young man with a lot of free time 🤫
 
-Here are some ideas to get you started:
+Fun Facts
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🖥️ 2004 - First own pc\
+🎉 2008 - First own business\
+✨ 2012 - First Bitcoin\
+🏡 2014 - First own home\
+🚗 2015 - First own supercar\
+🔥 2018 - FI/RE\
+🚨 To this days - I have never sold my Bitcoin\
