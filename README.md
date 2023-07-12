@@ -4,10 +4,10 @@ I'm MOn ₿. Jofn, a free young man, anarcho-capitalist, entrepreneur with a lot
 
 Fun Facts
 
-🖥️ 2004 - First own pc\
-🎉 2008 - First own business\
-✨ 2012 - First Bitcoin\
-🏡 2014 - First own home\
-🚗 2015 - First own supercar\
-🔥 2018 - FI/RE\
-🚨 To this days - I have never sold my Bitcoin
+🖥️ &nbsp;&nbsp;2004 - First own pc\
+🎉 &nbsp;&nbsp;2008 - First own business\
+✨ &nbsp;&nbsp;2012 - First Bitcoin\
+🏡 &nbsp;&nbsp;2014 - First own home\
+🚗 &nbsp;&nbsp;2015 - First own supercar\
+🔥 &nbsp;&nbsp;2018 - FI/RE\
+🚨 &nbsp;&nbsp;To this days - I have never sold my Bitcoin
